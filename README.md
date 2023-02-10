@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![](https://gfycat.com/scientificdistanthammerkop)
+![](https://thumbs.gfycat.com/ScientificDistantHammerkop-mobile.mp4)
